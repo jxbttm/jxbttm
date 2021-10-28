@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Galaxy-power
 - 👀 I’m interested in galaxy
-- 🌱 I’m currently learning how to be powerful
+- 🌱 I’m currently learning how to be the galaxy
 - 💞️ I’m looking to collaborate on the galaxy
 - 📫 How to reach me: in the galaxy
 
