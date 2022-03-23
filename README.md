@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Galaxy-power
 - 👀 I’m interested in anything interesting
 - 🌱 I’m currently learning how to be the very best like no one ever was
-- 💞️ I’m looking to collaborate to learn more stuffs
 - 📫 How to reach me: Call me maybe
 
 <!---
