@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Galaxy-power
-- 👀 I’m interested in galaxy
-- 🌱 I’m currently learning how to be the galaxy
-- 💞️ I’m looking to collaborate on the galaxy
-- 📫 How to reach me: in the galaxy
+- 👀 I’m interested in anything interesting
+- 🌱 I’m currently learning how to be the very best like no one ever was
+- 💞️ I’m looking to collaborate to learn more stuffs
+- 📫 How to reach me: Call me maybe
 
 <!---
 Galaxy-power/Galaxy-power is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
